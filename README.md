@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Venatim
-- 👀 I’m interested in crypto 
-- 🌱 I’m currently learning airdrop 
+- 👀 I’m interested in crypto,AI,coding
+- 🌱 I’m currently learning python & c++ 
 - 💞️ I’m looking to collaborate on airdrops 
-- 📫 How to reach me on X @Timotyvena 
+- 📫 How to reach me on X @Thyvena 
 - 😄 Pronouns: handsome 
 - ⚡ Fun fact: I am fun. 
 
